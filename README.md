@@ -5,4 +5,5 @@ Promjene uzrokovane sa otvaranjem.
 
 --- Hila! :D
 
-So Ethan..
+I miss the old Ethan!
+... always rude Ethan.
